@@ -1,0 +1,2 @@
+# locat
+... BISA YOK BISMILLAH
